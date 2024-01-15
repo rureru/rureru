@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @rureru
+- I am trying to develop various things as an amateur. I may not have interesting projects, but i try to make content that can help beginners.
+- There's nothing else special about me. BYE✋
